@@ -1,1 +1,1 @@
-zebra zero labor struggle chest back prize cry figure zoo arrive jack silver torn pure
+replied tree path rich show army cup forty mirror inch swing student wooden trap most
