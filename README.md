@@ -1,1 +1,1 @@
-class touch fish burn bent local shirt carbon hand applied allow wool lungs watch now
+all sat position quiet clothes president forget more away town cannot nearly deep horse angle
