@@ -1,1 +1,1 @@
-all sat position quiet clothes president forget more away town cannot nearly deep horse angle
+carried stop contain hospital throughout shadow jet temperature satellites count crowd work aboard bill model
