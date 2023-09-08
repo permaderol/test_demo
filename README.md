@@ -1,1 +1,1 @@
-arrive cowboy sea adult forest newspaper so pressure central highest tight expect spoken ocean shade
+never vegetable steam cold decide inch touch oldest friendly somehow during father my market taken
