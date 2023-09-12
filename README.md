@@ -1,1 +1,1 @@
-heavy please weak hurt any highway arm meal bottom broken color education lake ready automobile
+across blue pound whatever century table trace clothes stuck blew principle universe lunch me mother
