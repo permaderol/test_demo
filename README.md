@@ -1,1 +1,1 @@
-declared year bank please grandfather verb handle design larger pot stood wish won distance stretch
+him hay wonder about wash show friend studying nose our serious flower hello clay gun
