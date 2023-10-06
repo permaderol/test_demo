@@ -1,1 +1,1 @@
-street hurry pole crack paid camera pay speed gate fell breath both courage year ask
+car sure information writing duty use studied entirely accurate temperature enjoy life needle careful prevent
