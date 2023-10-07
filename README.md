@@ -1,1 +1,1 @@
-car sure information writing duty use studied entirely accurate temperature enjoy life needle careful prevent
+lungs concerned aloud shut camera cross larger private within count voyage pound as white method
