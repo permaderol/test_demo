@@ -1,1 +1,1 @@
-nearly table official human rhythm sad father few smile time beautiful accurate parts truck grandmother
+specific heavy belt determine reach agree cutting recognize outer large capital character compound ear frog
