@@ -1,1 +1,1 @@
-stretch represent raise vapor ahead creature tight man serious eight sense father children concerned fox
+invented arrow customs prove remember leave character complete east aside feed obtain act will hard
