@@ -1,1 +1,1 @@
-magnet apart hidden offer stand part minerals attached attached element football about complete stared care
+strange massage perfect stronger tool thousand over collect little born against fun nothing blank station
