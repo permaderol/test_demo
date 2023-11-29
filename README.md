@@ -1,1 +1,1 @@
-foreign direction serve third uncle noted changing parent remarkable plenty brain early behind column characteristic
+third putting curve determine glass football meat proud got front tongue compare worth rain yellow
