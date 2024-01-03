@@ -1,1 +1,1 @@
-attached because dear those plan theory forgot allow country table dull found lot skill pale
+north valuable equipment clay door syllable class distance industry upon torn upon loud plenty written
