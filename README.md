@@ -1,1 +1,1 @@
-think cover bicycle history observe surprise curve ordinary valuable listen almost climate soil lucky maybe
+substance uncle universe due discover detail century industry captain team tone carried arrow when invented
