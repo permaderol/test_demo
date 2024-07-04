@@ -1,1 +1,1 @@
-equal lucky vast ourselves forty available night individual than am range fly village sugar own
+appropriate color tobacco bring search walk may finger belt thou success smallest lift government chose
