@@ -1,1 +1,1 @@
-closely cowboy truth small mail far sound captured track themselves they flower involved proper dress
+research audience pan bee bear finger how element worse automobile share catch verb energy river
