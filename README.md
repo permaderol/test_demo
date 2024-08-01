@@ -1,1 +1,1 @@
-beginning baby glad eight read curve winter human camp native object quiet push too valuable
+keep prize newspaper love process directly frog name husband hardly lonely finish generally stairs plates
